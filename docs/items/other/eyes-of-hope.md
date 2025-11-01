@@ -1,0 +1,4 @@
+# Eyes of Hope
+*Created: (~February ?, 2023)*
+
+The Eyes of Hope are Hope’s eyes. But since he always sleeps, he never opens them. But when he opens them, whatever is to be caught in their sight shall be judged. This judgment is to decide existence and definition. If the judgment is “worthy”, the lifeform continues to live but under the watch of Hope. But if the judgment is to be “unworthy”, the entity frozen in sight shall be expunged from truly all “realities”. And will cease to exist and have past or future no more. As well be forgotten by those who knew of the lifeform or object forever. These eyes appear to have a texture that shows the beauty of the cosmos. The eyes will only ever open if an entity is detected growing towards Hope’s power, So a judgment can happen.

@@ -1,0 +1,4 @@
+# Grand Core
+*Created: (~February ?, 2023)*
+
+The Grand Core moves across Ring 1 of Zanl. The core is a white sphere that has a door in the front of it. If you open the door and enter, you’ll find yourself in a white hyperspace, with a tree not far from the door. This tree is the real center of the Omniverse. The tree cannot be destroyed, as it exists forever. If it were somehow destroyed, it would repair itself instantly back at the center. The tree represents the health of Zanl and appears like a cherry tree. The more of a danger that Zanl is in, more leave will fall. But if all the leaves are intact and on the tree, Zanl isn’t in danger at all. This white dome doesn’t appear in Ring 0, nor any part of it.

@@ -1,0 +1,5 @@
+# The Allbowl
+*Created: (~February ?, 2023)*
+
+This is an event where all supernatural and powerful people come to. Bex’es come to watch and play in it. It's like a big meet up with “activities” that people can either watch or play in. Some of these activities include classic games like football, soccer, and basketball. Some other activities come from different worlds and might be a sport on earth. It could be like the popular “Fighting” activity. Where players kill each other to win a prize of their liking.  All and most activities played here all start at once and creates highly competitive environments in each activity. Each activity has its own stadium, theme, food, and people. Betting is a highly active thing that happens during this event. There is a building / department for bets alone called the “Universal Bet Department”.
+(Happens every 5000 years.)

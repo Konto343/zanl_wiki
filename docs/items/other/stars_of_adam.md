@@ -1,0 +1,4 @@
+# Stars of Adam
+*Created: (~February ?, 2023)*
+
+If you can manage to see the stars  just in the distance within the “Outer layer” of Zanl,  you’re lucky. Those stars are unimaginably old and are the first things to ever exist within Zanl. Good luck reaching them, because they get further and further the closer you get to them. No way to see their beautiful surface any time soon. Those stars each have a name and ring around Zanl multiple times. There are 652 stars that exist and glow brightly. This collection of stars are called “The stars of Adam”.  The collection consists of multicolored stars. Those stars can be approached by any other person except for Aeta or Necrodon. They were both born from the Stars of Adam.

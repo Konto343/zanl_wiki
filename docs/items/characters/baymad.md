@@ -25,5 +25,5 @@ Gohel before it's uprising, was mostly a tools and weapons producer, speeding up
 Kendra was far north when these events happened, however, her mother laid in the same nation that her husband was in. She came to oppose Andrew's decisions and joined riots and protests. Andrew grew curious of what his wife was doing, and spectated a riot one day. They found each other and matched eyes through the chaos, and all she knew was that hadn't been the same man she married. She had left the riots and snuck outside the nation's border, spreading word the her nations's conditions and Andrew's delusions.  
 
 
-## name origin: 
+## Name origin: 
 Comes from a Star Glitcher game on Roblox, I replaced a letter in a mode's name, "Bayham", with a "d", resulting in "Baymad" 

@@ -20,7 +20,7 @@ Kairo originally, was working at large tech company. He had initially struggled 
 
 Then, black figures appeared across the streets, standing still and watching at Kairo from afar. He thought it was something to do with his past stress from work, however, they wouldn't disappear. Noises and other visual anomalies ramped up in quantity around the city. He asked people if they saw what he was seeing, all was the same, "No."
 
-These events drove him insane in the pending months, costing him his job, relationships, and losing the love of his life.  
+These events drove him insane in the pending months, costing him his job, relationships, and eventually losing the love of his life.  
 
 ## Name origin: 
 He has multiple sources like my dreams, but my brain never came to give him a name. I grabbed inspiration of two things. The first being Vex, the Gloomist, from League of Legends. And the candy bar, “Twix”. I used every letter in the alphabet letter with “ex” until it sounded right. Then eventually I tried the letter “b” with “ex” and made “Bex”. 

@@ -13,5 +13,5 @@ width: 40%"
 src='/items/bb.png' title='Modern Logo'>
 {{</html>}}
 
-# Origin: 
-"Blood" is based off how much blood Bex has removed from his victims. "Birth" is based on the day he was announced as the next Death in the story.
+## Name origin: 
+The name is supposed to depict the silent "birth" of the new and last Death in the story.

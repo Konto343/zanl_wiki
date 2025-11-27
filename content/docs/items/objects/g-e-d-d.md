@@ -1,0 +1,8 @@
+# Gyro Energy Dispersal Device
+*Created: (~February ?, 2023)*
+
+The GEDD is a device that creates infinite energy using gyro rings. This advanced device was made by Bex. He made it for the reason of solving his energy problem. He needs something powerful enough to allow him to use his tools for creating other technologies. The device can float in the air or remain on the ground. If it is to be on the ground, please ensure there are strong supports to hold the device in place.
+
+A GEDD works by spinning a ring around an energy source. These rings can move at different speeds, but as along they’re moving, energy will be made. Energy collected from the source in the rings will be dispersed back to the source. But not all the energy will be dispersed, some of it is outputted. The faster these rings move, the faster the process works. But if the rings move way too fast, the device will slowly become inefficient. The source is stabilized from the rings with energy absorbed, so it cannot destruct. The source will not overflow with energy due to the device’s safety system. All energy that is output is safely emitted from the outermost ring in the gyro. Energy can be captured in many different ways, but Bex uses a sphere or semi sphere grid of a superconductor material. Since energy is being thrown into the source and the energy is given back, an infinite cycle of energy can happen safely.
+
+Most of the GEDDs have 6 rings. The more rings a device has, the more energy output will be. It can have a max of 16 rings. Any more than that, and it will become unstable to run.

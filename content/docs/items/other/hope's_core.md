@@ -1,0 +1,4 @@
+# Hopes Core
+*Created: (~February ?, 2023)*
+
+Hope’s Core resides somewhere in Zanl.  Some people say that a figure lies there. A figure or human named “Hope”. Hope is the manifestation of the emotion of hope.  Hope shall always be of  higher power than anything.  Anything being everything and all. This is meant seriously. Hope was created the exact moment Zanl was born. “He” has so much power, he could be the “Author of Creation”. Despite Hope possibly not being the creator of anything, he holds truly powerful power. Hope sleeps and waits for something within his white sphere in the center of Zanl.

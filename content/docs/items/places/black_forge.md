@@ -1,0 +1,12 @@
+# Black-Forge
+*Created: (~May 12, 2023)*
+
+A forge flying through the cosmos. 
+
+## Story:
+The Black Forge was known for creating the strongest weapons in the universe. These weapons were hard as suns and beautiful like stars. They controlled the amount they sold and made to balance power among the universe. They had used neighboring stars to power their creations while they moved. During that time, Zoi was one of the hardest workers. He had devised half of the custom-made materials and designed perfect weapons. Zoi was given lots of money in exchange for his excellent work. The forge praised him and was respected among his peers.
+When entering the Milky Way galaxy, the forge had gone attacked by intergalactic robbers. These robbers had demanded all the weapons, blueprints, and money. They had agreed but refused to give over years of work, so they began to use their weapons to attack the robbers. It felt like war. People being shot down and sliced in half. 
+
+Zoi turned to his weapon, standing afar in glory. It was his last and greatest weapon, the Aperen. He told no of what it was or how long he had been working on it. Zoi took over 7 years of creating the material alone and 2 years to refine the sword. He picked up the heavy sword and, with all of his strength, tossed into space at unremarkable speeds. He said farewell to his creation, hoping it would go into the right hands. Furthermore, he picked up a sword of a fallen blacksmith and fought against the robber with his peers. They fought for hours before the last blacksmith stood on his knees, Zoi. He had fought hard and well, serving for the forge. To see it only get stolen from him, made him furious. So with his last breath, Zoi was shot in the head. The robbers took everything, all the blueprints, materials, weapons, and other valuables. Money they had sought to power their standing and terrorize other people. Stealing and killing to better themselves. The forge was exploded by a blast sent from the robbers. Pieces of the place still wander through space today.
+
+People figured out the forge was attacked. They tell of the history of the forge, and how it shone above the clouds, serving creations of power. People gathered to pay their respect for the forge. Graves were made on a planet that blacksmiths grew up on. Weapons that people bought from the forge brought their swords. They place their swords in a circle to honor the forge and its blacksmiths. No more would ever forget the forge and its people.
